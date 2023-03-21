@@ -1,0 +1,2 @@
+# Rich-
+Invest and earn
